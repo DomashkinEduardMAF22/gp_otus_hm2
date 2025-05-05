@@ -16,7 +16,7 @@
    ![image](https://github.com/user-attachments/assets/563836a3-5a3d-4468-a18a-d43494ea49b7)
 
 6)
-
+о
 
 
 
